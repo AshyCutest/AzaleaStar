@@ -27,3 +27,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName is Asahi!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₊✩‧₊˚౨ৎ˚₊✩‧₊ʀᴇɴᴛʀʏ ᴄᴏᴍɪɴɢ ꜱᴏᴏɴ₊✩‧₊˚౨ৎ˚₊✩‧₊
+
+
+　 　　 　　 　New Links!! : [https://notfinsihedontview.straw.page](https://sign-this.straw.page) And [https://kazuhawanderer.straw.page](https://kazuhawanderer.straw.page)
