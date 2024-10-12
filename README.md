@@ -6,8 +6,8 @@
 ㅤㅤㅤㅤㅤㅤㅤ"Wanderer" is now the only title he goes by, for he has no home, kin, or destination.ㅤׁ . °
 
 ㅤㅤWanderer is one of my favourite Genshin anemo characters, Not just by the fanart of the disgusting horny people,
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-I like his lore + game design.
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI like his lore + game design.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIf you want any Links, 
 
