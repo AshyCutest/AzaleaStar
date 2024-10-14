@@ -30,3 +30,5 @@
 
 
 　 　　 　　 　New Links!! : [https://notfinsihedontview.straw.page](https://sign-this.straw.page), [https://kazuhawanderer.straw.page](https://kazuhawanderer.straw.page) and 　 　　 　　 　　 　　 　　 　　　 　　 　　 　　https://rentry.co/Asahicutie
+
+ 　 　 　 　 　 SHOUT OUT TO @[https://github.com/LynTheLynel)](https://github.com/LynTheLynel) AND @https://github.com/goticaalee !
