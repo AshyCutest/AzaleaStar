@@ -18,7 +18,8 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![wanderer _ scara gif ; dm for higher quality ; requested](https://github.com/user-attachments/assets/d421ecb8-5f37-4a0b-97c1-85a38fc44182)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![670931c330441](https://github.com/user-attachments/assets/cb2bbb8d-51d7-4dc9-847f-1c5ab1006570)
+
+ㅤㅤㅤㅤㅤㅤㅤ![670931c330441](https://github.com/user-attachments/assets/cb2bbb8d-51d7-4dc9-847f-1c5ab1006570)
 
 
 ![wanderer _ scara gif ; dm for higher quality ; requested (1)](https://github.com/user-attachments/assets/58bfba6e-2858-4326-a6a8-d8cb0e8622a6)
