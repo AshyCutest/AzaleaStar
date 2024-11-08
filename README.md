@@ -30,6 +30,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₊✩‧₊˚౨ৎ˚₊✩‧₊ʀᴇɴᴛʀʏ ᴄᴏᴍɪɴɢ ꜱᴏᴏɴ₊✩‧₊˚౨ৎ˚₊✩‧₊
 
 
-　 　　 　　 　New Links!! : [https://notfinsihedontview.straw.page](https://sign-this.straw.page), [https://kazuhawanderer.straw.page](https://kazuhawanderer.straw.page) and 　 　　 　　 　　 　　 　　 　　　 　　 　　 　　https://rentry.co/Asahicutie
+　 　　 　　 　New Links!! : [https://notfinsihedontview.straw.page](https://sign-this.straw.page), [https://kazuhawanderer.straw.page](https://kazuhawanderer.straw.page) and 　 　　 　　 　　 　　 　　 　　　 　　 　　 　　[KazuhaXwanderer](https://rentry.co/Asahiiii)
 
  　 　 　 　 　 SHOUT OUT TO @[https://github.com/LynTheLynel)](https://github.com/LynTheLynel) AND @https://github.com/goticaalee !
