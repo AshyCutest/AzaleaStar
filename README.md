@@ -22,7 +22,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ![670931c330441](https://github.com/user-attachments/assets/cb2bbb8d-51d7-4dc9-847f-1c5ab1006570)
 
 
-![wanderer _ scara gif ; dm for higher quality ; requested (1)](https://github.com/user-attachments/assets/58bfba6e-2858-4326-a6a8-d8cb0e8622a6)
+![](https://64.media.tumblr.com/b885a7ac03f487f5b0f5856a8a30482f/3bcf11e3731ee4df-ec/s1280x1920/1ec34508eb5e18d2c3662db88fd8e450cb1393b4.gif))
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName is Asahi!
