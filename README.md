@@ -1,35 +1,29 @@
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.・。.・゜✭・₍^.  ̫.^₎・✫・゜・。.
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤWelcome To My github!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**𝖫𝗈𝖺𝖽𝗂𝗇𝗀...**
 
-
-
-ㅤㅤㅤㅤㅤㅤㅤ"Wanderer" is now the only title he goes by, for he has no home, kin, or destination.ㅤׁ . °
-
-ㅤㅤWanderer is one of my favourite Genshin anemo characters, Not just by the fanart of the disgusting horny people,
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI like his lore + game design.
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIf you want any Links, 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ check out my Github Profile,
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthere is some!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/65ee7e4eb7e1aea579ff16599ca552ec/11576ed7281d4fbf-d5/s100x200/cf3bc82aea28cabe1b80523c88902d71858c90a3.pnj)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![wanderer _ scara gif ; dm for higher quality ; requested](https://github.com/user-attachments/assets/d421ecb8-5f37-4a0b-97c1-85a38fc44182)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName : Asahi
 
-ㅤㅤㅤㅤㅤㅤㅤ![670931c330441](https://github.com/user-attachments/assets/cb2bbb8d-51d7-4dc9-847f-1c5ab1006570)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤAge : 18
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤMy lovely loverrrrr...(lynel/j) ![](https://64.media.tumblr.com/7db872b11d50a96ebe3db879f5edc36f/629db350ca8fdca1-50/s100x200/c0d41b12de763acb9f32ddee7b35cd0c992e46ee.gif)
 
-![](https://64.media.tumblr.com/b885a7ac03f487f5b0f5856a8a30482f/3bcf11e3731ee4df-ec/s1280x1920/1ec34508eb5e18d2c3662db88fd8e450cb1393b4.gif))
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤMale
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName is Asahi!
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₊✩‧₊˚౨ৎ˚₊✩‧₊ʀᴇɴᴛʀʏ ᴄᴏᴍɪɴɢ ꜱᴏᴏɴ₊✩‧₊˚౨ৎ˚₊✩‧₊
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFemboy
 
 
-　 　　 　　 　New Links!! : [https://notfinsihedontview.straw.page](https://sign-this.straw.page), [https://kazuhawanderer.straw.page](https://kazuhawanderer.straw.page) and 　 　　 　　 　　 　　 　　 　　　 　　 　　 　　[KazuhaXwanderer](https://rentry.co/Asahiiii)
+![](https://64.media.tumblr.com/b885a7ac03f487f5b0f5856a8a30482f/3bcf11e3731ee4df-ec/s1280x1920/1ec34508eb5e18d2c3662db88fd8e450cb1393b4.gif)
 
- 　 　 　 　 　 SHOUT OUT TO @[https://github.com/LynTheLynel)](https://github.com/LynTheLynel) AND @https://github.com/goticaalee !
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⪩. .⪨
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLovely friends : Lynel, Kayla and Rynny
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/aa61fca82611e637ae5eb61a40c974db/2f8340a3e7eb6a84-f8/s400x600/9623ed1a01b8abd1a61e91f922e8ee12daef2af2.pnj)
