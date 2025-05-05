@@ -26,4 +26,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLovely friends : Lynel, Kayla and Rynny
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤMother : Gwen , Father : Adam
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/aa61fca82611e637ae5eb61a40c974db/2f8340a3e7eb6a84-f8/s400x600/9623ed1a01b8abd1a61e91f922e8ee12daef2af2.pnj)
