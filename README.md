@@ -7,7 +7,7 @@
  　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ　ﾠ2. No needs to copy my Ponies, They're not good, You could do better.
    　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ 　 　 　　3. I am very Nervous and Shy but I get comfortable very fast. 
    　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ　　　　 　ﾠﾠ 　 　 　 　 　But If you dislike my behavior ﾠﾠI can change 
-ﾠﾠ   　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ　　　　 　ﾠﾠ 　 　 　 　 　　 　　 　but that Change won't you good.
+ﾠﾠ   　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ　　　　 　ﾠﾠ 　 　 　 　 　　 　　but that Change won't get you any good.
    　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ 　 　 　　4. I get upset easily Please Be patient with me, I am very sensitive and very emotional.
  　ﾠ　 　ﾠ　 　ﾠ　　ﾠ 　 　  　ﾠ　 　　![](https://64.media.tumblr.com/a0252aaeb3f0cacc2070f08a4ea59fed/340efd899e8b73b6-44/s400x600/5dfc40d1e3a68c92caeb405d7ae5267c081583b9.pnj)
 
