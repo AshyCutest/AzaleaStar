@@ -99,7 +99,3 @@ in a yapper side!
 This will be my Dnis! I made this for >https://github.com/GwenStarz !!
 
 Dni : https://rentry.co/Emilie-DNI
-
-ﾠ 　 　  　ﾠ　 　　 　ﾠ　 　ﾠ　 　ﾠ　 　ﾠ　　ﾠ 　 　  　ﾠ　 　　 　ﾠ 　ﾠ　 　　 　ﾠ　 　ﾠ　 　　![](https://64.media.tumblr.com/e92586492b5014273c96c02d91c7dcfd/743e571c1fa3fc46-fb/s400x600/9e6c93bddb72a17ac685913b78fcd4034a2bdbfd.pnj)
-
-　 　ﾠ　　 　ﾠ　![](https://64.media.tumblr.com/9e31ca9bad622ee3601b646e21492316/743e571c1fa3fc46-9e/s400x600/5ae0de8f99ae8ae492264880a3edc7a395c228c2.pnj)![](https://64.media.tumblr.com/9e31ca9bad622ee3601b646e21492316/743e571c1fa3fc46-9e/s400x600/5ae0de8f99ae8ae492264880a3edc7a395c228c2.pnj)
